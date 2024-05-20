@@ -1,1 +1,1 @@
-"Mad Max: Fury Road" (2015), directed by George Miller, earned critical acclaim and multiple Academy Awards, revitalizing the "Mad Max" series after a decades-long hiatus.
+"Star Wars: The Force Awakens" (2015) revived the iconic sci-fi saga for a new generation, breaking numerous box office records upon its release.
