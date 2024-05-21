@@ -1,1 +1,1 @@
-"Star Wars: The Force Awakens" (2015) revived the iconic sci-fi saga for a new generation, breaking numerous box office records upon its release.
+The 2010s saw the rise of original content on streaming platforms like Netflix, Hulu, and Amazon Prime Video, challenging traditional film studios and distribution models.
