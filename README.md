@@ -1,1 +1,1 @@
-The 2010s saw the rise of original content on streaming platforms like Netflix, Hulu, and Amazon Prime Video, challenging traditional film studios and distribution models.
+"The Shape of Water" (2017), directed by Guillermo del Toro, blended romance, fantasy, and horror to create a visually stunning and emotionally resonant film.
