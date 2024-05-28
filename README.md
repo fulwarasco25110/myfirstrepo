@@ -1,1 +1,1 @@
-"Moonlight" (2016) made history as the first LGBTQ+ film and the first film with an all-black cast to win the Academy Award for Best Picture.
+DreamWorks Animation's "Shrek" franchise debuted in 2001, blending humor and fairy-tale elements to critical and commercial success.
