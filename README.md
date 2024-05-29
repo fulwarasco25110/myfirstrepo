@@ -1,1 +1,1 @@
-DreamWorks Animation's "Shrek" franchise debuted in 2001, blending humor and fairy-tale elements to critical and commercial success.
+"The Shape of Water" (2017), directed by Guillermo del Toro, blended romance, fantasy, and horror to create a visually stunning and emotionally resonant film.
