@@ -1,1 +1,1 @@
-"The Shape of Water" (2017), directed by Guillermo del Toro, blended romance, fantasy, and horror to create a visually stunning and emotionally resonant film.
+Despite its controversial final season, "Game of Thrones" remains one of the most influential and talked-about television series of the 21st century.
