@@ -1,1 +1,1 @@
-Despite its controversial final season, "Game of Thrones" remains one of the most influential and talked-about television series of the 21st century.
+Composer Ramin Djawadi created the iconic theme music and score, enhancing the show's atmosphere and emotional impact.
