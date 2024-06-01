@@ -1,1 +1,1 @@
-Composer Ramin Djawadi created the iconic theme music and score, enhancing the show's atmosphere and emotional impact.
+Pixar continued to deliver emotional storytelling with films like "Inside Out" (2015), exploring the complexities of human emotions.
