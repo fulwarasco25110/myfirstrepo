@@ -1,1 +1,1 @@
-Pixar continued to deliver emotional storytelling with films like "Inside Out" (2015), exploring the complexities of human emotions.
+The show's costume design, by Michele Clapton, garnered praise for its attention to detail and historical inspiration.
