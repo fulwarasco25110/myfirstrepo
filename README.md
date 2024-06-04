@@ -1,1 +1,1 @@
-The show's costume design, by Michele Clapton, garnered praise for its attention to detail and historical inspiration.
+"Game of Thrones" employs multiple interconnected storylines, following characters across different regions of Westeros and Essos.
