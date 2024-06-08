@@ -1,1 +1,1 @@
-"Game of Thrones" employs multiple interconnected storylines, following characters across different regions of Westeros and Essos.
+Peter Dinklage, who portrayed Tyrion Lannister, won four Primetime Emmy Awards for his performance.
