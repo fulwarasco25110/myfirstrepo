@@ -1,1 +1,1 @@
-Dragons, direwolves, and White Walkers are among the fantastical elements in the show's rich mythology.
+"Parasite" (2019), directed by Bong Joon-ho, defied genre conventions to become the first non-English language film to win the Academy Award for Best Picture.
