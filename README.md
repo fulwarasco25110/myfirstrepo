@@ -1,1 +1,1 @@
-"The Avengers" (2012) brought together iconic Marvel superheroes in a groundbreaking crossover event, setting the stage for future ensemble films.
+The prequel series "House of the Dragon," focusing on the Targaryen dynasty, is set to premiere in the near future.
