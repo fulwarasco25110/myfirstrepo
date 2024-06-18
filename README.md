@@ -1,1 +1,1 @@
-The prequel series "House of the Dragon," focusing on the Targaryen dynasty, is set to premiere in the near future.
+Quentin Tarantino's "Kill Bill" duology, released in 2003 and 2004, showcased his signature style of nonlinear storytelling and homage to genre cinema.
