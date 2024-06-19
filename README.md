@@ -1,1 +1,1 @@
-"Get Out" (2017), directed by Jordan Peele, combined horror and social commentary to create a groundbreaking and thought-provoking film.
+The show's official soundtrack albums, composed by Ramin Djawadi, received acclaim and were released on CD and digital platforms.
