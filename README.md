@@ -1,1 +1,1 @@
-The show's official soundtrack albums, composed by Ramin Djawadi, received acclaim and were released on CD and digital platforms.
+The show received widespread acclaim for its production values, including cinematography, visual effects, and makeup design.
