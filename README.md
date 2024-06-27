@@ -1,1 +1,1 @@
-Quentin Tarantino's "Kill Bill" duology, released in 2003 and 2004, showcased his signature style of nonlinear storytelling and homage to genre cinema.
+"Wonder Woman" (2017), directed by Patty Jenkins and starring Gal Gadot, became a symbol of female empowerment and shattered box office records for a female-directed superhero film.
