@@ -1,1 +1,1 @@
-The series has inspired tourism to filming locations, such as Dubrovnik, Croatia, which served as the backdrop for King's Landing.
+Christopher Nolan's "Memento" (2000) captivated audiences with its innovative narrative structure, playing scenes in reverse to mirror the protagonist's memory loss.
