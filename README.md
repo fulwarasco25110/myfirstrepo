@@ -1,1 +1,1 @@
-"Wonder Woman" (2017), directed by Patty Jenkins and starring Gal Gadot, became a symbol of female empowerment and shattered box office records for a female-directed superhero film.
+Charlize Theron's transformative performance as serial killer Aileen Wuornos in "Monster" (2003) earned her the Academy Award for Best Actress.
