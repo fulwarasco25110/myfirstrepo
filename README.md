@@ -1,1 +1,1 @@
-The show was filmed in various locations, including Northern Ireland, Croatia, Spain, and Iceland.
+Pixar continued to deliver emotional storytelling with films like "Inside Out" (2015), exploring the complexities of human emotions.
