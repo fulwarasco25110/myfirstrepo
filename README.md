@@ -1,1 +1,1 @@
-Pixar continued to deliver emotional storytelling with films like "Inside Out" (2015), exploring the complexities of human emotions.
+"The Lord of the Rings" film trilogy, directed by Peter Jackson, concluded with "The Return of the King" in 2003, winning multiple Oscars.
