@@ -1,1 +1,1 @@
-"The Lord of the Rings" film trilogy, directed by Peter Jackson, concluded with "The Return of the King" in 2003, winning multiple Oscars.
+Ellen Page garnered praise for her role as a pregnant teenager in "Juno" (2007), earning an Academy Award nomination for Best Actress.
