@@ -1,1 +1,1 @@
-Ellen Page garnered praise for her role as a pregnant teenager in "Juno" (2007), earning an Academy Award nomination for Best Actress.
+The series features multiple noble houses vying for control of the Iron Throne of the Seven Kingdoms of Westeros.
