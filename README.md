@@ -1,1 +1,1 @@
-The series features multiple noble houses vying for control of the Iron Throne of the Seven Kingdoms of Westeros.
+Fans of "Game of Thrones" are known for their passionate dedication, creating fan art, cosplay, and online forums to discuss theories and analysis.
