@@ -1,1 +1,1 @@
-Fans of "Game of Thrones" are known for their passionate dedication, creating fan art, cosplay, and online forums to discuss theories and analysis.
+Pixar Animation Studios dominated the decade with hits like "Finding Nemo" (2003), "The Incredibles" (2004), and "Up" (2009), showcasing groundbreaking animation and storytelling.
