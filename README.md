@@ -1,1 +1,1 @@
-"Get Out" (2017), directed by Jordan Peele, combined horror and social commentary to create a groundbreaking and thought-provoking film.
+"Game of Thrones" has been credited with revitalizing interest in the fantasy genre in television and popular culture.
