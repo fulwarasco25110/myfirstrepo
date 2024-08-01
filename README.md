@@ -1,1 +1,1 @@
-"Game of Thrones" has been credited with revitalizing interest in the fantasy genre in television and popular culture.
+The series finale, "The Iron Throne," aired on May 19, 2019, marking the conclusion of the epic saga.
